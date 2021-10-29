@@ -1,4 +1,4 @@
-## Olá! I am Aurélio Carvalho
+## Hi! I am Aurélio Carvalho
 
 - 🎒 I’m currently studying Electrical Engineering
 
